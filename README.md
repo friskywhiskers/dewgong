@@ -1,0 +1,2 @@
+# dewgong
+DEWGONG IS A POKEMON.
